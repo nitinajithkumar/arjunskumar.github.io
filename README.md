@@ -1,2 +1,2 @@
 # nitinajithkumar.github.io
-Personal Profile/ Online Resume. 
+My Personal Profile in the WWW. 
